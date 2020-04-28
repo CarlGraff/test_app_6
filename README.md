@@ -1,1 +1,1 @@
-1. Complete RoR Developer 3 mounths in 6 days.
+1. Complete RoR Developer 3 months in 6 days.
